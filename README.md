@@ -1,2 +1,0 @@
-# unarebeldedigital
-paginaweb
